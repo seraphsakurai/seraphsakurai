@@ -1,3 +1,4 @@
+
 haii im seraphim, or mephilles!!
 
 ★📎{} .. 5/17
@@ -18,3 +19,4 @@ im sensitive, bpd, autism. trying my best to be kind!<br/>
 
 ──★ ˙🍓 ̟ games !!<br/>
 rdr2, final fantasy, cry of fear, nso, pjsk, roblox, crk, etc..<br/>
+![download (1)](https://github.com/user-attachments/assets/3fb10074-4f12-43f1-8560-ae8afbd4ef60)
